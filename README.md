@@ -56,5 +56,5 @@ Choose Reliable, Lightweight Open Slat Wooden Crates / Skeleton Crates From A Tr
 ---
 
 [Shop Open Slat Wooden Crates / Skeleton Crates](https://www.bluerosepackaging.com/product/skeleton-open-slat-wooden-crates/)
----
+
 
